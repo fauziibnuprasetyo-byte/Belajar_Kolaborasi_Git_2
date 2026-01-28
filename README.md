@@ -1,3 +1,3 @@
 # Belajar_Kolaboarasi_Git
 
-1. Setup
+Fauzi Ibnu Prasetyo - Bekasi Utara
